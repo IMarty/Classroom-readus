@@ -6,9 +6,6 @@ Szabi
 Jiji
 Elaine !
 
-meow
-=^.^=
-Elaine ❤ 
 meow 🐱
 
 Elaine 💩 (ง ͠° ͟ل͜ ͡°)ง 
@@ -45,3 +42,4 @@ Hello brightness!
 ⢀⢀⢀⢀⢀⢀⢀⢀⠻⠿⢀⢀⢀⢀⢀⢀⢀⢀⢀⢀⢀⢠⣿⣿⡇
 
 WTF
+do you kno da wae?
