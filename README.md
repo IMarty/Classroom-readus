@@ -43,3 +43,6 @@ Hello little Monster!
 
 WTF
 do u kno da wae?
+.yomama{
+    width: 99999px;
+}
