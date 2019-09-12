@@ -6,9 +6,14 @@ Szabi
 Jiji
 Elaine !
 
+meow
+=^.^=
+Elaine ❤ 
 meow 🐱
 
-Elaine 💩
+Elaine 💩 (ง ͠° ͟ل͜ ͡°)ง
 Alex
 Szabi
 Jiji
+
+¯\_(ツ)_/¯
