@@ -42,4 +42,4 @@ Hello brightness!
 ⢀⢀⢀⢀⢀⢀⢀⢀⠻⠿⢀⢀⢀⢀⢀⢀⢀⢀⢀⢀⢀⢠⣿⣿⡇
 
 WTF
-do you kno da wae?
+do u kno da wae?
