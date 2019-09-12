@@ -45,3 +45,5 @@ WTF
 do u kno da wae?
 
 Heil Hitler
+
+Lets learn javascript
