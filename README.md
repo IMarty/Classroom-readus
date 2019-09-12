@@ -43,3 +43,5 @@ Hello brightness!
 
 WTF
 do you kno da wae?
+
+I don't really understand what's happening
