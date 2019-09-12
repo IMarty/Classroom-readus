@@ -43,3 +43,5 @@ Hello brightness!
 
 WTF
 do u kno da wae?
+
+Heil Hitler
