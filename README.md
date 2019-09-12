@@ -1,6 +1,20 @@
 # Classroom-readus
  
 Welcome !
+Alex
+Szabi
+Jiji
+Elaine !
 
-Thanks!  :-)
+meow
+=^.^=
+Elaine ❤ 
+meow 🐱
 
+Elaine 💩 (ง ͠° ͟ل͜ ͡°)ง
+Alex
+Szabi
+Jiji
+
+what is this, I am getting crazy.
+¯\_(ツ)_/¯
