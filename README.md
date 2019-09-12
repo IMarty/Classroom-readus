@@ -57,6 +57,3 @@ do you kno da wae?
 I don't really understand what's happening
 do u kno da wae?
 do u kno da wae?
-.yomama{
-    width: 99999px;
-}
