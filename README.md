@@ -1,3 +1,6 @@
 # Classroom-readus
  
 Welcome !
+
+Thanks!  :-)
+
