@@ -1,4 +1,7 @@
 # Classroom-readus
  
 Welcome !
-wrong!
+Alex
+Szabi
+Jiji
+
