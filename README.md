@@ -62,3 +62,4 @@ do u kno da wae?
 This is the secondary branch
 cmds line use: git branch <name> to create
 git checkout <name> to change branch, master is the default
+dah fuck
