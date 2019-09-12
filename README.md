@@ -6,7 +6,7 @@ Szabi
 Jiji
 Elaine !
 
-meow
+meow 🐱
 
 Elaine 💩
 Alex
