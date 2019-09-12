@@ -7,6 +7,9 @@ Jiji
 Elaine !
 
 meow
+=^.^=
+Elaine ❤ 
+meow 🐱
 
 Elaine 💩
 Alex
