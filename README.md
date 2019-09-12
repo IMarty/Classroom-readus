@@ -8,7 +8,7 @@ Elaine !
 
 meow 🐱
 
-Elaine 💩 
+Elaine 💩 (ง ͠° ͟ل͜ ͡°)ง
 Alex
 Szabi
 Jiji
