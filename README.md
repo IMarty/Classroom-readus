@@ -17,7 +17,7 @@ what is this, I am getting crazy.
 ¯\_(ツ)_/¯
 
 
-Hello brightness!
+Hello little Monster!
 ⢀⢀⢀⢀⢀⢀⢀⢀⢀⢀⠶⣿⣭⡧⡤⣤⣻⣛⣹⣿⣿⣿⣶⣄
 ⢀⢀⢀⢀⢀⢀⢀⢀⢀⣼⣊⣤⣶⣷⣶⣧⣤⣽⣿⣿⣿⣿⣿⣿⣷
 ⢀⢀⢀⢀⢀⢀⢀⢀⢀⢻⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⡇
@@ -46,3 +46,8 @@ do you kno da wae?
 
 I don't really understand what's happening
 do u kno da wae?
+do u kno da wae?
+
+Heil Hitler
+
+Lets learn javascript
