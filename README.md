@@ -12,7 +12,7 @@ Elaine 💩 (ง ͠° ͟ل͜ ͡°)ง
 Alex
 Szabi
 Jiji
-
+Finally I manged  40 minutes after the others!
 what is this, I am getting crazy.
 ¯\_(ツ)_/¯
 
@@ -45,3 +45,4 @@ WTF
 do you kno da wae?
 
 I don't really understand what's happening
+do u kno da wae?
