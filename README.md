@@ -4,11 +4,15 @@ Welcome !
 Alex
 Szabi
 Jiji
-Elaine ❤
+Elaine !
 
 meow
 =^.^=
 Elaine ❤ 
+meow 🐱
+
+Elaine 💩
 Alex
 Szabi
 Jiji
+
